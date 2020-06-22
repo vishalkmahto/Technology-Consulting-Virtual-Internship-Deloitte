@@ -1,1 +1,1 @@
-# Technology-Consulting-Virtual-Interns-Deloitte-hip
+# Technology-Consulting-Virtual-Interns-Deloitte-Solutions
